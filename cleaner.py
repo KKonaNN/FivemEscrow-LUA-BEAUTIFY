@@ -1,1 +1,1 @@
-discord.gg/pca
+discord.gg/psu
