@@ -1,1 +1,1 @@
-discord.gg/psu
+discord.gg/lynx
